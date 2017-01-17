@@ -8,6 +8,8 @@ cubaan dr nonie ni
 
 payoh nye weiii
 
-zee suruh ubah
-
 sy budak br belajar
+
+tukar lagi weiii
+
+zee suruh ubah
