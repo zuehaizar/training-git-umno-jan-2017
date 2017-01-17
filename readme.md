@@ -11,3 +11,5 @@ payoh nye weiii
 zee suruh ubah
 
 sy budak br belajar
+
+try lg skali
