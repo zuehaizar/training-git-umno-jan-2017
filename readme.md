@@ -14,3 +14,11 @@ cubaan dr nonie ni
 payoh nye weiii
 
 weiii
+
+sy budak br belajar
+
+tukar lagi weiii
+
+zee suruh ubah
+
+asdasodmoasmdosam
