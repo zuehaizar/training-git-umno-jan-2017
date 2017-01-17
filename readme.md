@@ -13,10 +13,4 @@ cubaan dr nonie ni
 
 payoh nye weiii
 
-test lg.....
-
-sy budak br belajar
-
-tukar lagi weiii
-
-zee suruh ubah
+weiii
