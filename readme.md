@@ -13,14 +13,21 @@ cubaan dr nonie ni
 
 payoh nye weiii
 
-<<<<<<< HEAD
 zee suruh ubah
 
 sy budak br belajar
 
 try lg skali
-=======
+
 weiii
->>>>>>> 5f3ad6f99fdd03da61cc5b906e5f82843d8c966a
 
 try n error
+
+weiii
+
+sy budak br belajar
+
+tukar lagi weiii
+
+zee suruh ubah
+
